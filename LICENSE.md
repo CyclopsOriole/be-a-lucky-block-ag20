@@ -1,4 +1,4 @@
-
+Experience be a lucky block like never before with be a lucky block Script ultimate, the #1 Script. Includes auto-heal and custom skins for
 
 
 
